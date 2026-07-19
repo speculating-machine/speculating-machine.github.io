@@ -1,1 +1,1 @@
-### Thingking Machine
+### Speculating Machine
